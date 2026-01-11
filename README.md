@@ -1,1 +1,0 @@
-# amazon_challenge_2025
